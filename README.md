@@ -1,1 +1,2 @@
 # Home
+My name's Harshi, and I'm a 22-year-old systems, planetary science, and sociology enthusiast. I have recently graduated from the Georgia Institute of Technology, with Bachelors of Science degrees in Physics with minors in Finance and Sociology Statistics & Data Science. I am currently a Business Systems Analyst at Origami Risk, working on the Risk Professional Services team! I hope you enjoy looking through my current and past projects, academic achievements, hobbies, as well as anything else I thought could help you in getting to know me!
